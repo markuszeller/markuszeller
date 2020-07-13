@@ -21,6 +21,8 @@ Give my website a hit if you like oldskool stuff like scrollers, copper bars and
 Wanna get in contact? Social media comes in place.  
 [Instagram](https://www.instagram.com/markuszeller/)  
 [Facebook](https://www.facebook.com/markus.zeller.private)  
+[Discord](https://discord.gg/qnYxa6q)   
+[Skype](skype:markuszeller?chat)
 
 ## Music
 I love making music and below you can find my stuff.
