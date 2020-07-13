@@ -28,7 +28,7 @@ Wanna get in contact? Social media comes in place.
 I love making music and below you can find my stuff.
 When you like it, please consider supporting me by sharing the links and liking on the platforms below.
 The more people listen to them, the happier I am.
-If you still have some love, you can buy them. I am ~~young~~ old and needing the money.
+If you still have some love, you can buy them. I am ~~young~~ old and need the money.
 
 There's always a **free to listen** version in the Podcast or on Youtube. Subscribe to be among the first audience.
   
