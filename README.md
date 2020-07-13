@@ -13,14 +13,23 @@
                  `-----'¯¯¯¯¯¯¯¯    ¯¯¯¯
 ```
 
-Visit my website at  
+## My website  
+Give my website a hit if you like oldskool stuff like scrollers, copper bars and starfields.  
 [markuszeller.com](https://markuszeller.com)
 
-Contact me at  
+## Social Media  
+Wanna get in contact? Social media comes in place.  
 [Instagram](https://www.instagram.com/markuszeller/)  
 [Facebook](https://www.facebook.com/markus.zeller.private)  
 
-Listen to my music at  
+## Music
+I love making music and below you can find my stuff.
+When you like it, please consider supporting me by sharing the links and liking on the platforms below.
+The more people listen to them, the happier I am.
+If you still have some love, you can buy them. I am ~~young~~ old and needing the money.
+
+There's always a **free to listen** version in the Podcast or on Youtube. Subscribe to be among the first audience.
+  
 [Podcast](https://itunes.apple.com/de/podcast/dj-n-4cer-promo-podcast/id323879840?l=en&mt=2)  
 [Youtube](https://www.youtube.com/playlist?list=PL9B5E1B5F9712127A)  
 [Spotify](https://open.spotify.com/artist/2Tzmp2LceoFOr9n2hZ7C2L)  
@@ -29,9 +38,13 @@ Listen to my music at
 [Amazon](https://www.amazon.com/s?k=Markus+Zeller+Music+Forced+Grooves+Records&i=digital-music&ref=nb_sb_noss)  
 [Apple Music](https://music.apple.com/de/artist/markus-zeller/437816491?l=en)
 
-Look at my designs at  
+## Graphics
+Playing with art is fun in all ways. Look at my graphical "artworks".
+Pretty, huh?
+  
 [Deviantart](https://www.deviantart.com/markuszeller)
 
-Support me at  
+## Money
+Give to me! Buy me a beer or two.  
 [Paypal](https://www.paypal.me/markuszeller)  
 [Patreon](https://www.patreon.com/markuszeller)  
