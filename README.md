@@ -17,6 +17,9 @@
 Give my website a hit if you like oldskool stuff like scrollers, copper bars and starfields.  
 [markuszeller.com](https://markuszeller.com)
 
+## Some gists
+Check out my [gists](https://gist.github.com/markuszeller) for some useful helpers.
+
 ## Social Media  
 Wanna get in contact? Social media comes in place.  
 [Instagram](https://www.instagram.com/markuszeller/)  
