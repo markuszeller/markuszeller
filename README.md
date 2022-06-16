@@ -14,7 +14,7 @@
 ```
 
 ## My website  
-Give my website a hit if you like oldskool stuff like scrollers, copper bars and starfields.  
+Give my website a hit if you like oldskool stuff like scrollers, copper bars, sprites and starfields.  
 [markuszeller.com](https://markuszeller.com)
 
 ## Some gists
