@@ -36,7 +36,7 @@ If you still have some love, you can buy them. I am ~~young~~ old and need the m
 
 There's always a **free to listen** version in the Podcast or on Youtube. Subscribe to be among the first audience.
   
-[Podcast](https://itunes.apple.com/de/podcast/dj-n-4cer-promo-podcast/id323879840?l=en&mt=2)  
+[Podcast](https://markuszeller.com/podcast/)  
 [Youtube](https://www.youtube.com/playlist?list=PL9B5E1B5F9712127A)  
 [Spotify](https://open.spotify.com/artist/2Tzmp2LceoFOr9n2hZ7C2L)  
 [Deezer](https://www.deezer.com/en/artist/13317899)  
